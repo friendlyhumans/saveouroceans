@@ -1,1 +1,1 @@
-# Save The Oceans 🐳
+# Save the Oceans 🐳
